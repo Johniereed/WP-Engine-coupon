@@ -116,7 +116,7 @@ The sale was valid till 28/02/2025, you initially need to enter your credit card
 
 ## How To Claim WP Engine Coupon Code?
 
-Follow these 5 simple steps to claim your WP engine promo code.
+Follow these **4 simple steps** to claim your WP engine promo code.
 
 Step 1: Visit WP Engine’s official website with this special [discount link](https://bit.ly/49DTEy6).
 
